@@ -1,2 +1,0 @@
-# ChceZebyMojBotDzialal
-descri[tion
